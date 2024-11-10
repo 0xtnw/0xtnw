@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @0xtnw
+- 👋 Hi, I’m Dan
 - 👀 I’m interested in AI & Crypto
 - 🌱 I’m currently learning how to program
 - 📫 How to reach me @dantnw
